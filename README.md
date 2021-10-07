@@ -15,3 +15,6 @@ Now, everything is just an idea, and I even didn't decided how to build the soft
 
 Anyway, I hope more like-minded people can join in and make it together. I am just a green hand who has just started to make progress together.  
 但是无论如何，我希望能有更多的志同道合的人加入进来，一起制作。我也只是一个刚刚起步的小白，共同进步。
+
+email:surfingme@outlook.com
+email:tedtian97@136.com
